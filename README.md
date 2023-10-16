@@ -4,7 +4,7 @@
 
 <img src="https://64.media.tumblr.com/10d646958b1ba14524223b9d70f1b2fc/tumblr_inline_pdzckeMXfs1v11djx_500.gif"><img src="https://64.media.tumblr.com/774378bac387db163bc8bdacabb6ce10/tumblr_inline_pdytsmQ0Vp1v11djx_500.gif"><img src="https://64.media.tumblr.com/135495175a6b59c79ccf034bbf51b367/tumblr_inline_pdzdeodrwF1v11djx_500.gif">
 
-★ please read my profile description!!
+★ please read my profile description!
 
 ☆ i have discord! whisper me on ponytown if you want to add me!
 
