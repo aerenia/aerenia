@@ -6,9 +6,9 @@
 
 ★ haiiiiiiiiiiii
 
-☆ i have discord! whisper me on ponytown if you want to add me!
+☆ i have discord, whisper me on ponytown if you want to add me!
 
-★ don't be afraid to talk to me! 
+★ don't be afraid to approach me :3
 
 ☆ check out the links below:
 
