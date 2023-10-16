@@ -8,7 +8,9 @@
 
 ☆ i have discord! whisper me on ponytown if you want to add me!
 
-★ check out the links below:
+★ don't be afraid to talk to me! 
+
+☆ check out the links below:
 
 [strawpage](https://aere.straw.page/) 
 
