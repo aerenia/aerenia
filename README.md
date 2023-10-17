@@ -8,7 +8,7 @@
 
 ☆ i have discord, whisper me on ponytown if you want to add me!
 
-★ don't be afraid to approach me :3
+★ feel free to talk to me!
 
 ☆ check out the links below:
 
