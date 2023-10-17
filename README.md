@@ -12,7 +12,7 @@
 
 ☆ check out the links below:
 
-[strawpage](https://aere.straw.page/) 
+[rentry](https://rentry.co/aereniax) 
 
 [guestbook](https://aere.123guestbook.com/)
 
