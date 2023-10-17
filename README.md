@@ -6,7 +6,7 @@
 
 ★ aerenia/aere
 
-☆ i have discord, whisper me on ponytown if you want to add me!
+☆ i have discord, whisper me to add!
 
 ★ feel free to talk to me!
 
