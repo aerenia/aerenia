@@ -16,6 +16,8 @@
 
 [guestbook](https://aere.123guestbook.com/)
 
+[world of text](https://www.yourworldoftext.com/~aerenia/)
+
 <img src="https://i.postimg.cc/s2kKdpJR/untitled.png">
 
 
