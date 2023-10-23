@@ -12,10 +12,6 @@
 
 ★ feel free to talk to me!
 
-⋆ you can also come up to me and
-  yap about your interests i'll 
-  listen!!
-
 ☆ check out the links below:
 
 [rentry](https://rentry.co/aereniax) 
