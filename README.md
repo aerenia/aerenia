@@ -11,7 +11,8 @@
 ☆ i have discord, whisper me to add!
 
 ★ feel free to talk to me!
-  ⋆ you can also come up to me and
+
+⋆ you can also come up to me and
   yap about your interests i'll 
   listen!!
 
