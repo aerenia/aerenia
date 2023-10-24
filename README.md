@@ -4,8 +4,6 @@
 
 <img src="https://64.media.tumblr.com/a9364b0192af7b03bc4dcdbd0b84043e/c0a50ad4e7df1325-44/s400x600/27f2a93bd0b3b53643b9e472d9a5de2d3c71b176.png"> 
 
-<img src="https://64.media.tumblr.com/10d646958b1ba14524223b9d70f1b2fc/tumblr_inline_pdzckeMXfs1v11djx_500.gif"><img src="https://64.media.tumblr.com/774378bac387db163bc8bdacabb6ce10/tumblr_inline_pdytsmQ0Vp1v11djx_500.gif"><img src="https://64.media.tumblr.com/135495175a6b59c79ccf034bbf51b367/tumblr_inline_pdzdeodrwF1v11djx_500.gif">
-
 ★ aerenia/aere
 
 ☆ i have discord, whisper me to add!
