@@ -12,7 +12,7 @@ write on my guestbook pls i secretly play this game to find cool people to talk 
 
 ☆ check out the links below:
 
-[rentry](https://rentry.co/aereniax) 
+[carrd](https://aere.carrd.co/) 
 
 [guestbook](https://aere.123guestbook.com/)
 
