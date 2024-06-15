@@ -10,7 +10,7 @@
 
 ☆ check out the links below:
 
-[carrd](https://aere.carrd.co/) 
+[carrd](https://aereaere.carrd.co/) 
 
 [guestbook](https://aere.123guestbook.com/)
 
