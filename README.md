@@ -4,8 +4,6 @@
 
 ★ aerenia/aere
 
-☆ i have discord, whisper me to add!
-
 ★ feel free to talk to me!
 
 ☆ check out the links below:
