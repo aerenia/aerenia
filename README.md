@@ -12,8 +12,6 @@
 
 [carrd](https://aereaere.carrd.co/) 
 
-[guestbook](https://aere.123guestbook.com/)
-
-[world of text](https://www.yourworldoftext.com/~aerenia/)
+[strawpage](https://aereaere.straw.page/)
 
 <img src="https://i.postimg.cc/s2kKdpJR/untitled.png">
