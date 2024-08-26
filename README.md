@@ -1,6 +1,6 @@
 # AERENIA
 
-<img src="https://static.wikia.nocookie.net/alien-stage/images/7/76/Mizi_hearts_sticker.gif/revision/latest?cb=20221214002439"> 
+<img src="https://static.wikia.nocookie.net/gokurakugai/images/0/06/Nei_Takarai_Portrait.png/revision/latest/scale-to-width/360?cb=20231009215431"> 
 
 ★ aerenia/aere
 
