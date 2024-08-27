@@ -1,6 +1,6 @@
 # »•» 🌸 AERENIA 🌸 «•«
 
-<img src="https://static.wikia.nocookie.net/gokurakugai/images/0/06/Nei_Takarai_Portrait.png/revision/latest/scale-to-width/360?cb=20231009215431"> 
+<img src="https://faering.carrd.co/assets/images/gallery81/ae6efbe9.png?v=0e6fbf52"> 
 
 ★ aerenia/aere
 
@@ -12,4 +12,3 @@
 
 [strawpage](https://aereaere.straw.page/)
 
-<img src="https://i.postimg.cc/s2kKdpJR/untitled.png">
