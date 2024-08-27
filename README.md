@@ -1,4 +1,4 @@
-# ❀ AERENIA ❀
+# »•» 🌸 AERENIA 🌸 «•«
 
 <img src="https://static.wikia.nocookie.net/gokurakugai/images/0/06/Nei_Takarai_Portrait.png/revision/latest/scale-to-width/360?cb=20231009215431"> 
 
