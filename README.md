@@ -23,7 +23,7 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/d5ed43885e8baf389a5f946e25639929/b35f0b146e0351a5-33/s400x600/d26079ba7261ab212b1e0a8204ea0250a3cd4536.gifv" width="300"/>
+  <img src="https://static.wikia.nocookie.net/megamitensei/images/e/e6/PSC_official_line_stickers_31.png/revision/latest?cb=20240622185137" alt="Image" width="300"/>
 </p>
 
 <p align="center" style="color: #ff69b4;">♡ check out my 
