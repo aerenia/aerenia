@@ -1,14 +1,26 @@
-<img src="https://faering.carrd.co/assets/images/gallery81/ae6efbe9.png?v=0e6fbf52"> 
-<img src="<https://64.media.tumblr.com/d1b559691cf56135d3318ae669f43976/d63355ffa76a5798-71/s400x600/fcd5149bf67601cab2131b45fe5ad6ef7aa00c0e.gifv">
+<p align="center">
+  <img src="https://dividers.crd.co/assets/images/gallery02/43c83d18.gif?v=05d33f91" alt="Banner" width="500"/>
+</p>
 
-★ aerenia
+<h1 align="center" style="color: #ff69b4;"><strong>⋆｡˚ Aerenia ˚｡⋆</strong></h1>
+<p align="center"> feel free to talk to me!! (esp if we share interests!!) </p>
 
-★ feel free to talk to me!
+<p align="center">
+  <a href="https://pony.town/">
+    <img src="https://img.shields.io/badge/-PonyTown-FF69B4?style=flat-square"/>
+  </a>
+</p>
 
-☆ check out the links below:
+<!-- About Me -->
+### ☆ About Me ☆
 
-[carrd](https://aereaere.carrd.co/) 
+-  age: **19** 
+-  typology: **infp 4w5** 
+-  main interests: **madoka magica + persona** (rn :3)
 
-[strawpage](https://aereaere.straw.page/)
+<!-- End Note with Footer -->
+<p align="center">
+  <img src="https://dividers.crd.co/assets/images/gallery02/43c83d18.gif?v=05d33f91" alt="Footer Image" width="300"/>
+</p>
 
-<img src="<https://64.media.tumblr.com/c7ec4bf57404ae926834e42ec6ba2258/294ddf3876d19d59-d5/s250x400/088a3e280d0af0f1ee87d1e7d788b0182a642fb2.gifv">
+<p align="center"> Be sure to check out my strawpage and carrd!! </p>
