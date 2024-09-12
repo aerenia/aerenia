@@ -22,4 +22,4 @@
   <img src="https://dividers.crd.co/assets/images/gallery02/43c83d18.gif?v=05d33f91" alt="Footer Image" width="300"/>
 </p>
 
-<p align="center"> Be sure to check out my strawpage and carrd!! </p>
+<p align="center"> check out my strawpage and carrd!! </p>
