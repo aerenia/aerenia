@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://yokai.crd.co/assets/images/image06.png?v=b4df531c" alt="Banner" width="500"/>
+  <img src=https://64.media.tumblr.com/7c6fdc813780d4ae6900a4af1f782f55/b35f0b146e0351a5-34/s250x400/8d679d9508fe4acd3e82dedf579d8a602aadad96.pnj" alt="Banner" width="500"/>
 </p>
 
 <h1 align="center" style="color: #ff69b4;"><strong>⋆｡˚ Aerenia ˚｡⋆</strong></h1>
@@ -18,7 +18,7 @@
 </p>
 
 <p align="center">
-  <img src="https://yokai.crd.co/assets/images/image07.png?v=b4df531c" width="300"/>
+  <img src="https://64.media.tumblr.com/d5ed43885e8baf389a5f946e25639929/b35f0b146e0351a5-33/s400x600/d26079ba7261ab212b1e0a8204ea0250a3cd4536.gifv" width="300"/>
 </p>
 
 <p align="center" style="color: #ff69b4;">♡ check out my 
