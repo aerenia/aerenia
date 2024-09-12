@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/7c6fdc813780d4ae6900a4af1f782f55/b35f0b146e0351a5-34/s250x400/8d679d9508fe4acd3e82dedf579d8a602aadad96.pnj" alt="Banner" width="500"/>
+  <img src="https://64.media.tumblr.com/44ebe8970a6910b2c391dd9816b8bcee/0f9ad161b514ee11-82/s400x600/53a5cdd70d7c1425aae38562b833915f40ea2d43.pnj" alt="Banner" width="500"/>
 </p>
 
 <h1 align="center" style="color: #ff69b4;"><strong>⋆｡˚ Aerenia ˚｡⋆</strong></h1>
