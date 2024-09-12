@@ -22,10 +22,6 @@
   -  main interests: <span style="color: #ff69b4;">madoka magica</span> + <span style="color: #ff69b4;">persona</span> (rn :3)
 </p>
 
-<p align="center">
-  <img src="https://static.wikia.nocookie.net/megamitensei/images/e/e6/PSC_official_line_stickers_31.png/revision/latest?cb=20240622185137" alt="Image" width="300"/>
-</p>
-
 <p align="center" style="color: #ff69b4;">♡ check out my 
   <a href="https://aereaere.straw.page" style="color: #ff69b4;">strawpage</a> and 
   <a href="https://aereaere.carrd.co/" style="color: #ff69b4;">carrd</a>! ♡
