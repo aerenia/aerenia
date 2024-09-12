@@ -9,6 +9,11 @@
   <img src="https://static.wikia.nocookie.net/megamitensei/images/e/e6/PSC_official_line_stickers_31.png/revision/latest?cb=20240622185137" alt="Image" width="300"/>
 </p>
 
+<p align="center">
+  <img src="https://64.media.tumblr.com/e97f49bdf4fb580bc9c7d02b37fba387/708bdb04fe2c9172-98/s400x600/d6c7d39c4b48ceca28521d331d8aa8ddfad900df.pnj" alt="Banner" width="300"/>
+</p>
+
+
 <h3 align="center" style="color: #ff69b4;">☆ About Me ☆</h3>
 
 <p align="center">
