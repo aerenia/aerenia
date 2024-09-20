@@ -4,6 +4,9 @@
   <img src="https://64.media.tumblr.com/0822ea3351dc6078c8be2f1431de51d0/ad68c02a7af56974-0b/s400x600/4c4792fb1bd4fafeafd65be778676f7dbefb2b73.gifv" alt="Banner" width="500"/>
 </p>
 
+<div align="center">
+  <img src="https://komarev.com/ghpvc/?username=aerenia&style=for-the-badge&color=ff69b4" alt="Profile Views" />
+</div>
 
 <p align="center" style="color: #ff69b4;">❀ feel free to talk to me!! (esp if we share interests!!) ❀</p>
 
