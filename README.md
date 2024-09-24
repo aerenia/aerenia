@@ -28,5 +28,3 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/0822ea3351dc6078c8be2f1431de51d0/ad68c02a7af56974-0b/s400x600/4c4792fb1bd4fafeafd65be778676f7dbefb2b73.gifv" alt="Banner" width="500"/>
 </p>
-
-<a href="https://liosvoyagewishes.straw.page">send a nice message to my friend who is going to go on an entire voyage across the world. (this is true)
