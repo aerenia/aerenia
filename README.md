@@ -19,6 +19,7 @@
   -  age: <strong>19</strong><br>
   -  typology: <strong>infp 4w5</strong><br>
   -  main interests: <strong>madoka magica</strong> + <strong>persona</strong> (rn :3)
+  (**currently not updating my strawpage rn bc i'm tired and lazy :( i'll still look it may be a bit before i put stuff up though!**)
 </p>
 
 <p align="center" style="color: #ff69b4;">♡ check out my 
