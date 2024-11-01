@@ -29,8 +29,8 @@
   <a href="https://aereaere.carrd.co/" style="color: #ff69b4;">carrd</a>! ♡
 
  <p align="center">
-(**currently not updating my strawpage rn bc i'm tired and lazy :(
-i'll still look it may be a bit before i put stuff up though!**)
+(currently not updating my strawpage rn bc i'm tired and lazy :(
+i'll still look it may be a bit before i put stuff up though!)
   
 </p>
 <p align="center">
