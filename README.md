@@ -22,14 +22,16 @@
 
   <p align="center">
 
-  (**currently not updating my strawpage rn bc i'm tired and lazy :(
-  i'll still look it may be a bit before i put stuff up though!**)
-  
 </p>
 
 <p align="center" style="color: #ff69b4;">♡ check out my 
   <a href="https://aereaere.straw.page" style="color: #ff69b4;">strawpage</a> and 
   <a href="https://aereaere.carrd.co/" style="color: #ff69b4;">carrd</a>! ♡
+
+ <p align="center">
+(**currently not updating my strawpage rn bc i'm tired and lazy :(
+i'll still look it may be a bit before i put stuff up though!**)
+  
 </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/0822ea3351dc6078c8be2f1431de51d0/ad68c02a7af56974-0b/s400x600/4c4792fb1bd4fafeafd65be778676f7dbefb2b73.gifv" alt="Banner" width="500"/>
