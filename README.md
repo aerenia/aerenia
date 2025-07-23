@@ -25,8 +25,7 @@
 </p>
 
 <p align="center" style="color: #ff69b4;">♡ check out my 
-  <a href="https://aereaere.straw.page" style="color: #ff69b4;">strawpage</a> and 
-  <a href="https://aereaere.carrd.co/" style="color: #ff69b4;">carrd</a>! ♡
+  <a href="https://aereaere.straw.page" style="color: #ff69b4;">strawpage</a> ♡
 
  <p align="center">
   
