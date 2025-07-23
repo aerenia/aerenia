@@ -16,7 +16,7 @@
 <h3 align="center" style="color: #ff69b4;">☆ About Me ☆</h3>
 
 <p align="center">
-  -  age: <strong>19</strong><br>
+  -  age: <strong>20</strong><br>
   -  typology: <strong>infp 4w5</strong><br>
   -  main interests: <strong>madoka magica</strong> + <strong>persona</strong> (rn :3)
 
@@ -29,8 +29,6 @@
   <a href="https://aereaere.carrd.co/" style="color: #ff69b4;">carrd</a>! ♡
 
  <p align="center">
-(currently not updating my strawpage rn bc i'm tired and lazy :(
-i'll still look it may be a bit before i put stuff up though!)
   
 </p>
 <p align="center">
